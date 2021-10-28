@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @wanderingwill71
+- 👀 I’m interested in dragonboating and motorbikes
+- 🌱 I’m currently learning how to use github
+- 💞️ I’m looking to collaborate on entry level stuff
+- 📫 How to reach me will@bober.com
